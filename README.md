@@ -1,1 +1,1 @@
-# JASP-Mirror-Machine-Learnig-Supervisinado-como-Reflexo-da-Inteligencia-Artificial
+# JASP-Mirror-Machine-Learnig-Supervisinado-como-Reflexo-da-Inteligência-Artificial
